@@ -1,0 +1,1 @@
+# veri-seti-ilk-bakis
